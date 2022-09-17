@@ -14,3 +14,8 @@ One of my main goals for 2023 is to get a job I love with a good team, and this 
 * Cycling
 * Driving
 * Traveling by car
+
+### List of social networks:
+[Discord](https://discord.com/)
+[Telegram](https://t.me/KazakovaGalina)
+[VK](https://vk.com/kazakovagalya)
